@@ -1,3 +1,5 @@
+# ⚠️ **THIS SCRIPT IS NO LONGER MAINTAINED, USE AT YOUR OWN RISK** ⚠️
+
 **Preview:**
 
 - Car Fires/Arson [Streamable](https://streamable.com/03nvrv)
